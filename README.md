@@ -3,7 +3,7 @@
 <p aligne="left">
 
 
-<div><img width="20" alt="IMG_8841" src="https://github.com/user-attachments/assets/c9c5dd4c-4d25-4a7b-b84f-841286b7e433" />Moe or Sayaka, they s/he ⚢. Proshipper & profic
+<div><img width="16" alt="IMG_8841" src="https://github.com/user-attachments/assets/c9c5dd4c-4d25-4a7b-b84f-841286b7e433" /> Moe or Sayaka, they s/he ⚢. Proshipper & profic
 <div>Isfj-t 9w8 964 felv true neutral. -15 minor
 <div>no dni, i block /unfriend freely. dont take it personal
 <div>I have low emp & i get irritated easily, always Iwc
