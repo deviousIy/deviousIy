@@ -1,4 +1,4 @@
-<img width="300" align="right" alt="Untitled283_20261116114543" src="https://github.com/user-attachments/assets/63d53db1-adbc-4fae-84da-0e81d8632da7" />
+<img width="321" align="right" alt="Untitled283_20261116114543" src="https://github.com/user-attachments/assets/63d53db1-adbc-4fae-84da-0e81d8632da7" />
 <table><tr><td>
 <p aligne="left">
 
@@ -9,3 +9,4 @@
 <div>I have low emp & i get irritated easily, always Iwc
 <div>I can be very slow sometimes, be patient with me :-(
 <div>c+h are okay idrgaf. always w2i, my pub chat is off
+⠀⠀⠀⠀⠀[<img width="100" alt="Untitled284_20261116220449" src="https://github.com/user-attachments/assets/40b50d05-49c4-440a-8c10-c311159aedd2" />](https://shrinking.straw.page)
