@@ -9,4 +9,8 @@
 <div>I have low emp & i get irritated easily, always Iwc
 <div>I can be very slow sometimes, be patient with me :-(
 <div>c+h are okay idrgaf. always w2i, my pub chat is off
-⠀⠀⠀⠀⠀[<img width="100" alt="Untitled284_20261116220449" src="https://github.com/user-attachments/assets/40b50d05-49c4-440a-8c10-c311159aedd2" />](https://shrinking.straw.page)
+
+   <div align="center">
+     
+###
+[<img width="100" alt="Untitled284_20261116220449" src="https://github.com/user-attachments/assets/40b50d05-49c4-440a-8c10-c311159aedd2" />](https://shrinking.straw.page)
