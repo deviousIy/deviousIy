@@ -1,16 +1,14 @@
-<img width="333" align="right" alt="Untitled283_20261116114543" src="https://github.com/user-attachments/assets/63d53db1-adbc-4fae-84da-0e81d8632da7" />
+<img width="226" align="right" alt="Untitled285_20261117222549" src="https://github.com/user-attachments/assets/87808506-ae07-4a3a-9ad2-79e98fc790aa" />
 <table><tr><td>
 <p aligne="left">
-
-
-<div><img width="16" alt="IMG_8841" src="https://github.com/user-attachments/assets/c9c5dd4c-4d25-4a7b-b84f-841286b7e433" /> Moe or Sayaka, they s/he ⚢. Proshipper & profic
-<div>Isfj-t 9w8 964 felv true neutral. -15 minor
-<div>no dni, i block /unfriend freely. dont take it personal
-<div>I have low emp & i get irritated easily, always Iwc
-<div>I can be very slow sometimes, be patient with me :-(
-<div>c+h are okay idrgaf. always w2i, my pub chat is off
-
-   <div align="center">
-     
-###
-[<img width="100" alt="Untitled284_20261116220449" src="https://github.com/user-attachments/assets/40b50d05-49c4-440a-8c10-c311159aedd2" />](https://shrinking.straw.page)
+<div><img width="16" alt="IMG_8841" src="https://github.com/user-attachments/assets/c9c5dd4c-4d25-4a7b-b84f-841286b7e433" /> hai, im Moe or Sayaka, they s/he any ⚢ omni asexual
+<div>Isfp-t sp/sx 9w8 964 felv true neutral. -15, minor
+<div>I am very impulsive and I can get irritated easily, I also have low
+<div>empathy, always iwc :-(
+<div>I can be very slow sometimes, be patient with me okay
+<div>I am profic, if youre uncomf wit dis block me okay?
+<div>i have no dni, i block / unfriend freely. dont take that personal
+<div>Do not copy/inspo my skins, no exceptions
+<div>c+h are okay. i always have my public chat off, w2i always
+<div>Dont involve me into dramas, especially if its not anywhere related
+<div>to me
